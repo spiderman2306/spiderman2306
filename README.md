@@ -2,7 +2,7 @@
 - 👀 I’m interested in editing videos
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on game creation and web development
-- 📫 How to reach me 23spiderman06@gmail.com
+- 📫 How to reach me ryousuf362@gmail.com
 - 😄 Pronouns: Him/Her
 - ⚡ Fun fact: 
 
